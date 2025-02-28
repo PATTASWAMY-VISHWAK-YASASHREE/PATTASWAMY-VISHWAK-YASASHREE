@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning skills skills helpful in real life like job related skills
 - 🌱 I’m currently learning ...full stack
 - 💞️ I’m looking to collaborate on ...people ready to guide me 
-- 📫 How to reach me ...
+- 📫 How to reach me ...mail(pvishwak18@gmail.com)
 - 😄 Pronouns: ...he/him
 - ⚡ Fun fact: ...iam a student
 
